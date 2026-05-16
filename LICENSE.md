@@ -1,4 +1,4 @@
-# 
+# advanced okx trading bot Tool | high-frequency + auto-leverage is the best okx trading bot, featuring high-frequency and auto-leverage. Smart, fast, and optimized for trading on
 
 
 
